@@ -1,0 +1,1 @@
+boil 1 cup water and add the coffee powder
